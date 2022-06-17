@@ -7,9 +7,13 @@
 
 - 🌱 I’m currently learning **Flutter**
 
+- 👨‍💻 Junior Flutter Developer 📲
+
 - 💬 Ask me about **Flutter**
 
 - 📫 How to reach me **mochdickynovaldi@gmail.com**
+
+- 👨🏻‍🎓 Im Diploma of Education, Game Design and Interactive Media at the University of Malang
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1YOs0jUBIW3nXhzsAcOSwLG0Uq0J5nOf-/view?usp=sharing](https://drive.google.com/file/d/1YOs0jUBIW3nXhzsAcOSwLG0Uq0J5nOf-/view?usp=sharing)
 
