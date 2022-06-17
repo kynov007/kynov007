@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Moch Dicky Novaldi
+- 👀 I’m interested in Flutter
+- 🌱 I’m currently learning Flutter
+- 📫 Email : mochdickynovaldi@gmail.com
+- 👨🏻‍🎓 Im Diploma of Education, Desain Game and Media Interaktif at University of Malang
