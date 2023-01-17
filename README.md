@@ -7,7 +7,7 @@
 
 - 👨🏻‍🎓 Im Diploma of Education, Desain Game and Media Interaktif at University of Malang
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1YOs0jUBIW3nXhzsAcOSwLG0Uq0J5nOf-/view?usp=sharing](https://drive.google.com/file/d/1YOs0jUBIW3nXhzsAcOSwLG0Uq0J5nOf-/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1YOs0jUBIW3nXhzsAcOSwLG0Uq0J5nOf-/view?usp=sharing](https://drive.google.com/file/d/1uKk1HbWY-kSnoXbH8ytKDhuojgMlPkVq/view?usp=share_link)
 
 - 📫 How to reach me **mochdickynovaldi@icloud.com**
 
