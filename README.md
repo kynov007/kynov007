@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1YOs0jUBIW3nXhzsAcOSwLG0Uq0J5nOf-/view?usp=sharing](https://drive.google.com/file/d/1YOs0jUBIW3nXhzsAcOSwLG0Uq0J5nOf-/view?usp=sharing)
 
-- 📫 How to reach me **mochdickynovaldi@gmail.com**
+- 📫 How to reach me **mochdickynovaldi@icloud.com**
 
 - ⚡ Fun fact **I work hard and want to learn new things**
 
